@@ -1,0 +1,3 @@
+- Amo programação
+- Tenho 17 anos
+- E sou paraibano
